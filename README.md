@@ -33,7 +33,7 @@ Verificación de identidad biométrica
 Como líder en la industria, Bet365 mantiene los más altos estándares de seguridad y juego responsable, ofreciendo una experiencia de entretenimiento segura y emocionante para usuarios en todo el mundo.
 Bet365: Where the World Plays - Tu Destino Global de Entretenimiento Deportivo
 
-bet365
+<a href="https://bet365-mx.mx">bet365</a>
 
 bet365 mx
 
